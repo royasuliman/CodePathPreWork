@@ -4,7 +4,7 @@
 
 Submitted by: Roya Suliman
 
-Time spent: 5 hours spent in total
+Time spent: 6 hours spent in total
 
 Link to project: https://glitch.com/edit/#!/calm-orchid-snowdrop
 
